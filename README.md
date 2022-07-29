@@ -1,5 +1,5 @@
 # super-spoofer-self-leak
-doesn't work for fivem, but it could work on cod, be and eac
+
 words from super (the creator):
 
 After further considerment, I will end it here. Its been fun and a journey with my customers and staff team. Sorry to say superspoofer / super generator and all other products owned by me, will be closed down. Before you DM me asking for a refund, no policy states we can expire licenses whenever, which you all agree to. However products such as superspoofer and hardware spoofer will stay up the actual application, the discord servers will close and future customers wont be able to purchase. One of the actual main reasons i am doing this is from the stress of managing the server, you see when you have 100+ dms every day of little kids screaming at you like "giVe mE my pRodUcT" or like hundreds of tickets every day, then when disputes come in for no reason or discord accounts being banned for no reason. Another reason im closing is FiveM are not nice people, they patched the main method for superspoofer, and it wont come back. Another reason is people on discord thinking they own the world, such as people like Speedy or other people that crack peoples application and share them. Or people like vanity thinking there the best.
